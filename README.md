@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AhmadCpro
 - 👀 I’m interested in ... Gaming
 - 🌱 I’m currently learning ... Computer itself 🤗
-- 💞️ I’m looking to collaborate on computing related stuffs
+- 💞️ I’m looking to collaborate on computing related stuffs.
 - 📫 How to reach me ...09061648938 or forvider@gmail.com
 
 <!---
